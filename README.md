@@ -1,1 +1,0 @@
-# SatybaldyFabian.github.io
